@@ -6,3 +6,6 @@ I am currently aiming to do the User Interface previously mentioned, however I a
 
 ## Stay Safe & Code Like Your Life Depends On IT!
 Make sure you get sleep of course.
+
+## YouTube
+https://www.youtube.com/channel/UCGLR1gDb5IS8Bu13ej2vGpA
